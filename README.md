@@ -7,5 +7,4 @@ Meu nome é Ana Gabriela!
 •••Entre em contato comigo 🍓
 santos.ribeiro07@escola.pr.gpv.br 
 
-![](https://tenor.com/pt-BR/view/aww-lana-condor-to-all-the-boys-always-and-forever-netflix-gif-19966600)
-
+![](https://media1.tenor.com/m/L562ilt-0qAAAAAC/aww-lana-condor.gif)
